@@ -1,1 +1,1 @@
-tüm projeler eklenecektir
+diğer tüm projelerim eklenecektir
